@@ -10,4 +10,5 @@ The following flights were flown under Mission 169
 [YouTube Video](https://youtu.be/t1gtPSNu7QE)
 
 ### L-169-C
+[YouTube Video](https://youtu.be/1w2tlW4bKEY)
 
